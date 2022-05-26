@@ -1,1 +1,2 @@
-# NovoRepositorio
+# NovoRepositorio 
+Gabriel é gay
